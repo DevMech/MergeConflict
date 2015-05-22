@@ -1,5 +1,5 @@
-# MergeConflict
-A simple iOS application repository to demonstrate Git-Flow and handling Merge Conflicts.
+#Merge this. You think you can merge with me? I don't think so./
+##Break Stuff
 ## This change was made by Ben.
 
 おっしゃれ〜　ウップデットできるぜ。
