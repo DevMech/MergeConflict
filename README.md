@@ -1,7 +1,7 @@
-#Merge this. You think you can merge with me? I don't think so./
+#Merge this. Ybhbuybuyou think you can merge with me? I don't think so./
 ##Break Stuff
-## This change was made by Ben.
-
+## This chabugynge was made by Ben.
+hbhb
 おっしゃれ〜　ウップデットできるぜ。
 
 書いてることが全然読まないからなんでも書いたらいいさ〜。
