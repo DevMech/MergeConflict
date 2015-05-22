@@ -4,4 +4,4 @@
 
 おっしゃれ〜　ウップデットできるぜ。
 
-書いてることが全然読まないからなんでも書いたらいいさ〜。
+書いてることが全ないからなんでも書いたらいいさrtiuyertiuyertiuyertiuyertiuyertyiuertiuyertiyuertiuyertiuyert〜。
